@@ -1,4 +1,4 @@
-### "Whoever drinks of the water that I shall give him shall never thirst; but the water that I shall give him shall be in him a well of water springing up into ever lasting life."
+### "Whoever drinks of the water that I shall give him shall never thirst; but the water that I shall give him shall be in him a well of water springing up into everlasting life."
 ### John 4:14
 
 <!--
