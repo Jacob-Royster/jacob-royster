@@ -1,4 +1,5 @@
-### Hi there 👋
+### "Whoever drinks of the water that I shall give him shall never thirst; but the water that I shall give him shall be in him a well of water springing up into ever lasting life."
+### John 4:14
 
 <!--
 **Jacob-Royster/jacob-royster** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
